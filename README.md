@@ -11,3 +11,14 @@
 맵 클리어까지 도달 시간 측정
 골인 지점까지 3개의 스테이지 통과
 
+### 프로젝트 계획서 드라이브 URL
+https://buly.kr/BIVlElF
+
+### 피피티 드라이브 URL
+https://buly.kr/GZyUfEr
+
+### 풀영상 드라이브 URL
+https://buly.kr/Eoour5G
+
+### 티저영상 드라이브 URL
+https://buly.kr/90buUAF
