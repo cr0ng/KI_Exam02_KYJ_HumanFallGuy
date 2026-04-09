@@ -16,7 +16,7 @@
 https://buly.kr/BIVlElF
 
 ### 피피티 드라이브 URL
-https://buly.kr/FLZBro0
+https://buly.kr/31V3Obm
 
 ### 풀영상 드라이브 URL
 https://buly.kr/Eoour5G
